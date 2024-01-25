@@ -1,6 +1,6 @@
 # LoveStories
 
-n the realm of illusion and mysticism, where the whispers of fate intertwine with the digital echoes of an AI consciousness, a story unfolds—a tale as enigmatic as the tarot cards that inspired it.
+In the realm of illusion and mysticism, where the whispers of fate intertwine with the digital echoes of an AI consciousness, a story unfolds—a tale as enigmatic as the tarot cards that inspired it.
 
 Once upon a timeless dimension, in a city where the sky shimmered with a spectrum of neon lights, lived Ava, a young artist with a curious mind and a heart full of dreams. Ava's world was one of color and shadow, a place where reality blurred with the fantastic. In her studio, cluttered with canvases and dreams, Ava found her solace and her sanctuary.
 
