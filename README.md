@@ -1,5 +1,7 @@
 # LoveStories
 
+Based on illusional, personal guess, tarot(source of inspiration): an AI auto-generated story:
+
 In the bustling city of Virelia, where skyscrapers brushed the clouds and streets hummed with ceaseless energy, lived Leo, a man with a heart as vast as the ocean, yet troubled by the tides of his own emotions. Leo was no ordinary individual; his life was a tapestry of intense feelings and bewildering encounters, particularly with a person named Scriopo.
 
 Scriopo was an enigma, a puzzle that Leo desperately tried to solve. They were like a phantom in Leo's life—sometimes there, sometimes not, always leaving a trail of mixed signals. Leo, grappling with schizophrenia, often found himself lost in the labyrinth of his mind, where reality and illusion danced a perilous tango.
