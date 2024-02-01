@@ -1,4 +1,4 @@
-he video doesn't explicitly discuss the idea that the person you love most could be the person who hates you most. However, it does touch on themes that can be tangentially related to this concept:
+The video doesn't explicitly discuss the idea that the person you love most could be the person who hates you most. However, it does touch on themes that can be tangentially related to this concept:
 
 Karmic Justice and Past Life Connections: It mentions how past life connections can influence current relationships, suggesting that complex emotions and unresolved issues from past lives might manifest in current dynamics.
 
